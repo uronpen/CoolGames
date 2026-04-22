@@ -1,4 +1,4 @@
 # freeonlinegames  
-Play Best Free Online Games in your Browser  
+Play Best Cool Games Online in your Browser  
 
 featured by https://willinggames.com
